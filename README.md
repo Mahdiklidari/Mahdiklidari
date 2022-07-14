@@ -8,6 +8,6 @@
 
 >>Born in Iran 🇮🇷
 
->>Not to the war in Ukraine
+>>Not to the war in Ukraine🇺🇦
 
 
